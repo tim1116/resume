@@ -1,3 +1,3 @@
 # resume
 
-https://scauxiaoxu.github.io/resume/ to whatch more
+https://tim1116.github.io/resume/ to whatch more
